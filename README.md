@@ -8,8 +8,8 @@ My experience includes financial reconciliation, expense tracking, sales perform
 
 ## 🎓 Education
 
-- **PGDM** — Fortune Institute of International Business | 2026–2028
-- **BMS (Finance)** — University of Mumbai | 2021–2024
+- **PGDM** - Fortune Institute of International Business | 2026–2028
+- **BMS (Finance)** - University of Mumbai | 2021–2024
 
 ## 💼 Professional Experience
 
